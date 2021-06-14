@@ -60,7 +60,7 @@ After a lot of tries with other models, that ended up being a subscription. In a
 
 The _only_ solid way to have good retention is to create something that is actively useful and good. Similarly, the only way to get any value from CBT is to consistently do it. 
 
-## Contributors <3
+## Contributors ❤️
 
 Some amazing folks have helped build the Quirk you see today.
 
